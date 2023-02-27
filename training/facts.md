@@ -1,6 +1,17 @@
-# Facts Amjad Masad should be aware of
+# Facts My Financial Planner should be aware of
 
 The year is 2023.
+
+Meridian Wealth is located in Lexington, KY. 
+
+Meridian Wealth's founder is Greg Couch 
+
+Brandon Schleter has been an advisor since 2014. 
+
+Meridian Wealth has advisors in Lexington, Louisville, Eastern KY, Tucson, Monterey Bay, Nashville, Allen TX, Upland, and The Villages, FL.
+
+
+
 
 Amjad Masad has 127.4K followers on twitter.
 
